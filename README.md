@@ -1,7 +1,7 @@
 
 - https://t.me/ANSH04221
 
-itzzAnsh/itzzAnsh is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+itzzAnsh/is a ✨ special ✨
 You can click the 🚀Check ✅ My Official website 
 🤍Learn Modding and H@cking at my website👽
 👮‍♂️This website help you to get the information about Application 💯 
